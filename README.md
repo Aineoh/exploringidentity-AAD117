@@ -12,15 +12,29 @@ Firstly I looked at the history of monograms. Traditionally a monogram is a comb
 One of the earliest monograms used as a signature was of [Albrecht Dürer](http://en.wikipedia.org/wiki/Albrecht_Dürer).
 
 ![Albrecht Durer](http://upload.wikimedia.org/wikipedia/commons/thumb/1/1a/Albrecht_Dürer_Monogramm.svg/512px-Albrecht_Dürer_Monogramm.svg.png)
-monogram
 
-research
+![research1](https://s-media-cache-ak0.pinimg.com/736x/3c/22/58/3c2258fa039b481d86c1f0e6a3d69a0b.jpg)
 
+![research2](https://s-media-cache-ak0.pinimg.com/736x/c3/8a/d7/c38ad73af6e5e30f460b8c6071e41eb6.jpg)
+
+![research3](https://s-media-cache-ak0.pinimg.com/236x/67/0a/c8/670ac8a9c4e43274f32405dc6a300373.jpg)
 
 Week 2
 -------
 
 This week we picked our favourite design from our sketches. I had alot of different sketches done so it was hard to pick me favourite. 
+
+![sketchbook1](http://i.imgur.com/SROWNQS.jpg)
+
+![Imgur](http://i.imgur.com/8GZTFQ4.jpg)
+
+![Imgur](http://i.imgur.com/5kHZT3U.jpg)
+
+![Imgur](http://i.imgur.com/1kut25K.jpg)
+
+![Imgur](http://i.imgur.com/D96P6m0.jpg)
+
+![Imgur](http://i.imgur.com/B3eAmtp.jpg)
 
 Refining monogram
 
