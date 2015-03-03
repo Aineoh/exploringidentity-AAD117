@@ -9,9 +9,7 @@ Firstly I looked at the history of monograms. Traditionally a monogram is a comb
 
 ![chanel](https://pbs.twimg.com/profile_images/471773414307282945/wOzNtLic.jpeg)
 
-One of the earliest monograms used as a signature was of [Albrecht Dürer](http://en.wikipedia.org/wiki/Albrecht_Dürer).
-
-![Albrecht Durer](http://upload.wikimedia.org/wikipedia/commons/thumb/1/1a/Albrecht_Dürer_Monogramm.svg/512px-Albrecht_Dürer_Monogramm.svg.png)
+I started out doing some research into different types of monograms. I looked at how I could use the letters of my initials and how the letters can be formed in different ways. This was an interesting area of work for me because I never looked at how letters can have irregular shapes, yet still work and be easy to read. 
 
 ![research1](https://s-media-cache-ak0.pinimg.com/736x/3c/22/58/3c2258fa039b481d86c1f0e6a3d69a0b.jpg)
 
