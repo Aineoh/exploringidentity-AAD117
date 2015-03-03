@@ -20,7 +20,7 @@ I started out doing some research into different types of monograms. I looked at
 Week 2
 -------
 
-This week we picked our favourite design from our sketches. I had alot of different sketches done so it was hard to pick me favourite. 
+This week we picked our favourite design from our sketches and put them up for the class to see. I had alot of different sketches done so it was hard to pick me favourite.
 
 ![sketchbook1](http://i.imgur.com/SROWNQS.jpg)
 
@@ -34,9 +34,9 @@ This week we picked our favourite design from our sketches. I had alot of differ
 
 ![Imgur](http://i.imgur.com/B3eAmtp.jpg)
 
-Refining monogram
+After the class seen my monogram they had come up with some suggestions. One of the main ones was that the monogram didn't reflect me and my style of work. I agree with this as it looked very formal and dated. 
 
-looking at different styles
+Some of the 
 
 
 Week 3
