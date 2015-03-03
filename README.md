@@ -2,12 +2,12 @@
 
 Week 1
 -------
-Introduction
+
 In this module we have to create a monogram from our intials. This journal is to document the research I have done to produce my final monogram. 
 
-Firstly I looked at the history of monograms. Traditionally a monogram is a combination of intials used to form one symbol. They have been used in religions, royalty and coins. 
+Firstly I looked at the history of monograms. Traditionally a monogram is a combination of intials used to form one symbol. They have been used in religions, royalty and coins. It started as a way to identify these things and now it has developed into a powerful branding tool. The two 'c's' in Chanels branding was orginally a monogram but is now an international symbol.  
 
-![Imgur](http://i.imgur.com/5k0cTXo.jpg)
+![chanel](https://pbs.twimg.com/profile_images/471773414307282945/wOzNtLic.jpeg)
 
 One of the earliest monograms used as a signature was of [Albrecht Dürer](http://en.wikipedia.org/wiki/Albrecht_Dürer).
 
