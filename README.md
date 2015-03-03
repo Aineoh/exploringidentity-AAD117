@@ -5,10 +5,13 @@ Week 1
 Introduction
 In this module we have to create a monogram from our intials. This journal is to document the research I have done to produce my final monogram. 
 
-Firstly I looked at the history of monograms. Traditionally a monogram is a combination of intials used to form one symbol. They have been used in religions, royalty and businesses. 
+Firstly I looked at the history of monograms. Traditionally a monogram is a combination of intials used to form one symbol. They have been used in religions, royalty and coins. 
 
 ![Imgur](http://i.imgur.com/5k0cTXo.jpg)
 
+One of the earliest monograms used as a signature was of [Albrecht Dürer](http://en.wikipedia.org/wiki/Albrecht_Dürer).
+
+![Albrecht Durer](http://upload.wikimedia.org/wikipedia/commons/thumb/1/1a/Albrecht_Dürer_Monogramm.svg/512px-Albrecht_Dürer_Monogramm.svg.png)
 monogram
 
 research
