@@ -50,12 +50,12 @@ research
 Week 4
 -------
 This week we started a new project. We have to design an identity for the company Uncommon Knowledge. 
-Meet the client
+We met our client this week who gave us a presentation on what the company is about abd what look he wants. 
 
 Week 5
 -------
 
-This week we had a workshop from Little Thunder. They explained to us their process and how they 
+This week we had a workshop from Little Thunder. They explained to us their process and how they develope ideas for clients. 
 
 Week 6
 -------
