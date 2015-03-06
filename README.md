@@ -28,8 +28,6 @@ This week we picked our favourite design from our sketches and put them up for t
 
 ![Imgur](http://i.imgur.com/5kHZT3U.jpg)
 
-![Imgur](http://i.imgur.com/1kut25K.jpg)
-
 ![Imgur](http://i.imgur.com/D96P6m0.jpg)
 
 ![Imgur](http://i.imgur.com/B3eAmtp.jpg)
@@ -44,6 +42,8 @@ Week 3
 
 This week we are adding wordmarks to our monograms. I have been looking at different typefaces that would work well with my monogram. I's really like to add my signature to make it look like an artist signing off a painting. 
 wordmarks
+ 
+ ![Imgur](http://i.imgur.com/1kut25K.jpg)
  
 research 
 
