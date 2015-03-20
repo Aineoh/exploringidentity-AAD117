@@ -70,5 +70,7 @@ Personal Identity
 
 
 [Final monogram](https://www.flickr.com/photos/80894004@N03/16545297388/in/set-72157651185437972)
+
 [Final word mark](https://www.flickr.com/photos/80894004@N03/16706753746/in/album-72157651185437972/)
+
 [Album for supporting work](https://www.flickr.com/photos/80894004@N03/sets/72157651185437972/)
