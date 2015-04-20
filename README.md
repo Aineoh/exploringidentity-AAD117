@@ -63,8 +63,11 @@ Week 6
 This week we all had 15 minutes to meet with Chris, our client for Uncommon Knowledge. 
 
 Week 7
-=======
+-------
+Ulster festival 
 
+Week 8 
+--------
 Personal Identity 
 ----------------------------------------------------------------------------------------------------------
 
@@ -74,3 +77,25 @@ Personal Identity
 [Final word mark](https://www.flickr.com/photos/80894004@N03/16706753746/in/album-72157651185437972/)
 
 [Album for supporting work](https://www.flickr.com/photos/80894004@N03/sets/72157651185437972/)
+
+Week 9
+-------
+We were given a list of icons to produce for our uncommon knowledge project. We learned the history of icons from the first ones created by (Susan Kare)[http://www.kare.com/portfolio/03_apple_macicons.html] for Manintosh in the 1980's. We looked at the basic shapes of icons and how one symbol can be used to show meaning. 
+
+The list of icons needed are
+* Book
+* Shopping Cart
+* Credit Card
+* iPad
+* Achievement
+* Computer
+* Money
+* The Brain
+* Light Bulb
+* Calendar
+
+This week we had an icon work shop with Vic Bell. This was a great workshop and I learned so much about iconography. We looked at how we can produce icons for almost anything. 
+
+Week 10
+--------
+We looked at how style tiles can provide us with a mockup of a website without having to produce one. We are using these to present to our client for uncommon knowledge to show colour schemes, type and layout of our proposed websites. 
